@@ -1,2 +1,2 @@
 # kazu1341.github.io
-aaaaaaaaaaaaaa
+wadddaaaaaaaaaaaaaheeeeeeeeeeeeeeel isssssss hapeningg
