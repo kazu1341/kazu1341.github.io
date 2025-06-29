@@ -1,2 +1,2 @@
-# kazu1341.github.io
-wadddaaaaaaaaaaaaaheeeeeeeeeeeeeeel isssssss hapeningg
+# kazu1341.github
+Ngl figuring out how to code is the same complexity as figuring out my mental health
